@@ -1,0 +1,9 @@
+The day before you plan to churn, freeze the bowl of your ice cream maker. (Since your ice cream base will need to chill as well, we suggest making it the night before, too.)
+MAKE ICE CREAM BASE
+Make ice cream base: Fill a large bowl with ice and water, set aside. Fill a medium saucepan with about 2" water and place over medium heat. Bring to a bare simmer, then place a large heatproof bowl on top. Add chocolate and stir until melted. Let cool slightly. 
+In a medium saucepan over medium heat, whisk together milk, cream, and cocoa powder. When mixture begins to boil, remove from heat and set aside. In a large bowl, whisk sugar and egg yolks until pale and thick ribbons form, 3 to 4 minutes. (You could also use a hand mixer.) Whisking constantly, gradually add hot milk mixture, one ladle at a time, to warm through egg mixture.
+Pour mixture into saucepan then whisk in melted chocolate and place over low heat. Cook, stirring frequently with a wooden spoon, until mixture thickens, making sure the mixture never comes up to a simmer, about 4 to 5 minutes. To check if the mixture is done, coat the back of your wooden spoon with the mixture and swipe your finger through the mixture. If your finger leaves a clean line, your mixture is good to go—this will be at around 170°, if you're using a candy thermometer.
+When the custard is adequately thickened, stir in vanilla and salt. Strain into a large bowl and place in ice bath. Let cool to room temperature, then cover and chill 3 hours, up to overnight. 
+CHURN ICE CREAM
+When your custard is chilled and your ice cream maker bowl is frozen, churn ice cream according to manufacturer's instructions. 
+When ice cream is soft-serve consistency, transfer to another container and freeze until hardened, 2 to 3 hours, up to overnight.
